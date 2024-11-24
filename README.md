@@ -2,7 +2,7 @@
 - 👀 Free Personalised baby diet plan
 - 🌱 Visit free baby diet app - https://play.google.com/store/apps/details?id=com.uptodd.uptoddapp&hl=en_IN
 - 💞️ Visit babydiet.in for baby diet details
-- 
+  
 Here’s a general diet guide for toddlers around 15 months:
 
 Balanced Meals: Include a mix of grains (rice, wheat, oats), proteins (lentils, eggs, chicken, fish), and vegetables.
